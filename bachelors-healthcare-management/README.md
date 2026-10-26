@@ -58,3 +58,4 @@ My studies provided a foundation in healthcare management, public health, qualit
 These assignments represent selected work from my undergraduate studies and provide an overview of my academic interests and foundational knowledge in healthcare management.
 
 The documents are shared for professional portfolio purposes, subject to applicable academic and copyright permissions.
+© 2026 Inês Rosa. All rights reserved.
